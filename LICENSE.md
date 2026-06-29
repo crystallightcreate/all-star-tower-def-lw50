@@ -1,4 +1,4 @@
-# 
+# exclusive Script for all star tower defense is the best all star tower defense Script, featuring no clip and anti-ban. Safe and powerful for all your
 
 
 
